@@ -13,4 +13,8 @@ Going to try to practice some more pseudocoding so I can try and improve at that
 skill.
 
 Going to try to work using keyboard shortcuts as much as possible and only use
-the touchpad when absolutely necessary. 
+the touchpad when absolutely necessary.
+
+SHOUTOUT
+Shout out to Kyra B, who I've been in three different breakout groups with and
+who has been very friendly and helpful!

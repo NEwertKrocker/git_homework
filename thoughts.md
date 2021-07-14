@@ -18,3 +18,14 @@ the touchpad when absolutely necessary.
 SHOUTOUT
 Shout out to Kyra B, who I've been in three different breakout groups with and
 who has been very friendly and helpful!
+
+SESSION THREE ADDITION
+Hey! I'm here adding some more thoughts to this file in accordance with the
+assignment in session three.
+
+Thought one: Aren't fireflies neat?
+
+Thought two: I could really go for a donut.
+
+Thought three: You know I never watched Breaking Bad? Just not my cup of tea,
+I guess. 
